@@ -6,4 +6,5 @@ If you have any suggestions or functional questions about (Yb cupshopping mall),
 
 
 
-Our email: kntxlg@sina.com
+Our email: yankeshi5344@yeah.net
+
